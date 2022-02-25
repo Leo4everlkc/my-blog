@@ -420,3 +420,77 @@ Hi, 欢迎莅临我的世界
 每一件和你有关的小事情都让我心动
 当你和我说话，当你没和我说话
 我都掩饰不住心中莫名的欢乐
+
+4.2 爱情故事——北岛
+---------------------
+
+毕竟，只有一个世界/
+为我们准备了成熟的夏天/
+我们却按成年人的规则/
+继续着孩子的游戏/
+不在乎倒在路旁的人/
+也不在乎搁浅的船/
+
+然而，造福于恋人的阳光/
+也在劳动者的脊背上/
+铺下漆黑而疲倦的夜晚/
+即使在约会的小路上/
+也会有仇人的目光相遇时/
+降落的冰霜/
+
+这不再是一个简单的故事/
+在这个故事里/
+有我和你，还有很多人
+
+4.3  Song ——Christina Georgina Rossetti （徐志摩译）
+---------------------
+
+When I am dead, my dearest, 
+当我死去的时候亲爱的
+
+Sing no sad songs for me; 
+你别为我唱悲伤的歌
+
+Plant thou no roses at my head, 
+我坟上不必安插蔷薇
+
+Nor shady cypress tree. 
+也无需浓荫的柏树
+
+Be the green grass above me 
+让盖着我的轻轻的草
+
+With showers and dewdrops wet; 
+淋着雨也沾着露珠
+
+And if thou wilt, remember, 
+假如你愿意请记着我
+
+And if thou wilt, forget. 
+要是你甘心忘了我
+
+I shall not see the shadows,
+我再不见地面的青荫　
+
+I shall not feel the rain; 
+觉不到雨露的甜蜜
+
+I shall not hear the nightingale 
+再听不到夜莺的歌喉　 
+
+Sing on as if in pain. 
+在黑夜里倾吐悲啼
+
+And dreaming through the twilight 
+在悠久的昏暮中迷惘
+
+That doth not rise nor set, 
+阳光不升起也不消翳 
+
+Haply I may remember, 
+我也许，也许我记得你
+
+And haply may forget. 
+我也许，我也许忘记 
+
+https://music.163.com/song?id=109279&userid=1354718312
