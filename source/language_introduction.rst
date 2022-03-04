@@ -793,6 +793,6 @@ And haply may forget.
 
 这里是罗大佑的版本，好听：https://music.163.com/song?id=109279&userid=1354718312
 
-作为60天的纪念，我也把它唱给你听，3月2日就可以打开啦：https://music.163.com/#/program?id=2498793915
+作为60天的纪念！我也把它唱给你听，3月2日就可以打开啦：https://music.163.com/#/program?id=2498793915
 
 愿你开心，愿你天天开心
