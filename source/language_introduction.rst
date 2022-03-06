@@ -21,8 +21,7 @@ Hi, 欢迎莅临我的世界
 希望你不会看到几条。愿我们永远开心。
 
 以下是实时更新的正文：
-今天......大概是从收到你写的纸条开始才开心起来的，谢谢！
-
+呜呜呜本来莫名难过的，但你跟我说两句话就立刻恢复元气了，这个感觉太奇妙了！
 
 有关你的那些诗
 ======================
@@ -808,3 +807,1020 @@ And haply may forget.
 作为60天的纪念！我也把它唱给你听，3月2日就可以打开啦：https://music.163.com/#/program?id=2498793915
 
 愿你开心，愿你天天开心
+
+彩蛋
+======================
+
+5.1恭喜你发现彩蛋！
+---------------------
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+ L4evelkC
+
+  L4evelkC
+
+   L4evelkC
+
+    L4evelkC
+
+     L4evelkC
+
+      L4evelkC
+
+       L4evelkC
+
+        L4evelkC
+
+         L4evelkC
+
+          L4evelkC
+
+           L4evelkC
+
+            L4evelkC
+
+             L4evelkC
+
+              L4evelkC
+
+               L4evelkC
+
+                L4evelkC
+
+                 L4evelkC
+
+                  L4evelkC
+
+                   L4evelkC
+
+                    L4evelkC
+
+                    L4evelkC
+
+                   L4evelkC
+
+                  L4evelkC
+
+                 L4evelkC
+
+                L4evelkC
+
+               L4evelkC
+
+              L4evelkC
+
+             L4evelkC
+
+            L4evelkC
+
+           L4evelkC
+
+          L4evelkC
+
+         L4evelkC
+
+        L4evelkC
+
+       L4evelkC
+
+      L4evelkC
+
+     L4evelkC
+
+    L4evelkC
+
+   L4evelkC
+
+  L4evelkC
+
+ L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+ L4evelkC
+
+  L4evelkC
+
+   L4evelkC
+
+    L4evelkC
+
+     L4evelkC
+
+      L4evelkC
+
+       L4evelkC
+
+        L4evelkC
+
+         L4evelkC
+
+          L4evelkC
+
+           L4evelkC
+
+            L4evelkC
+
+             L4evelkC
+
+              L4evelkC
+
+               L4evelkC
+
+                L4evelkC
+
+                 L4evelkC
+
+                  L4evelkC
+
+                   L4evelkC
+
+                    L4evelkC
+
+                    L4evelkC
+
+                   L4evelkC
+
+                  L4evelkC
+
+                 L4evelkC
+
+                L4evelkC
+
+               L4evelkC
+
+              L4evelkC
+
+             L4evelkC
+
+            L4evelkC
+
+           L4evelkC
+
+          L4evelkC
+
+         L4evelkC
+
+        L4evelkC
+
+       L4evelkC
+
+      L4evelkC
+
+     L4evelkC
+
+    L4evelkC
+
+   L4evelkC
+
+  L4evelkC
+
+ L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelk C
+
+L4evelk  C
+
+L4evelk   C
+
+L4evelk    C
+
+L4evel k    C
+
+L4evel  k    C
+
+L4evel   k    C
+
+L4evel    k    C
+
+L4eve l    k    C
+
+L4eve  l    k    C
+
+L4eve   l    k    C
+
+L4eve    l    k    C
+
+L4ev e    l    k    C
+
+L4ev  e    l    k    C
+
+L4ev   e    l    k    C
+
+L4ev    e    l    k    C
+
+L4e v    e    l    k    C
+
+L4e  v    e    l    k    C
+
+L4e   v    e    l    k    C
+
+L4e    v    e    l    k    C
+
+L4 e    v    e    l    k    C
+
+L4  e    v    e    l    k    C
+
+L4   e    v    e    l    k    C
+
+L4    e    v    e    l    k    C
+
+L 4    e    v    e    l    k    C
+
+L  4    e    v    e    l    k    C
+
+L   4    e    v    e    l    k    C
+
+L    4    e    v    e    l    k    C
+
+ L    4    e    v    e    l    k    C
+
+  L    4    e    v    e    l    k    C
+
+   L    4    e    v    e    l    k    C
+
+    L    4    e    v    e    l    k    C
+
+     L    4    e    v    e    l    k   C
+
+      L    4    e    v    e    l    k  C
+
+       L    4    e    v    e    l    k C
+
+        L    4    e    v    e    l    kC
+
+         L    4    e    v    e    l   kC
+
+          L    4    e    v    e    l  kC
+
+           L    4    e    v    e    l kC
+
+            L    4    e    v    e    lkC
+
+             L    4    e    v    e   lkC
+
+              L    4    e    v    e  lkC
+
+               L    4    e    v    e lkC
+
+                L    4    e    v    elkC
+
+                 L    4    e    v   elkC
+
+                  L    4    e    v  elkC
+
+                   L    4    e    v elkC
+
+                    L    4    e    velkC
+
+                     L    4    e   velkC
+
+                      L    4    e  velkC
+
+                       L    4    e velkC
+
+                        L    4    evelkC
+
+                         L    4   evelkC
+
+                          L    4  evelkC
+
+                           L    4 evelkC
+
+                            L    4evelkC
+
+                             L   4evelkC
+
+                              L  4evelkC
+
+                               L 4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                               L4e v elkC
+
+                              L4e  v  elkC
+
+                             L4e   v   elkC
+
+                            L4e    v    elkC
+
+                           L4e     v     elkC
+
+                          L4e      v      elkC
+
+                         L4e       v       elkC
+
+                        L4e        v        elkC
+
+                       L4e         v         elkC
+
+                      L4e          v          elkC
+
+                      L4e         v           elkC
+
+                      L4e        v            elkC
+
+                      L4e       v             elkC
+
+                      L4e        v            elkC
+
+                      L4e         v           elkC
+
+                      L4e          v          elkC
+
+                      L4e           v         elkC
+
+                      L4e            v        elkC
+
+                      L4e             v       elkC
+
+                      L4e            v        elkC
+
+                      L4e           v         elkC
+
+                      L4e          v          elkC
+
+                      L4e         v           elkC
+
+                      L4e        v            elkC
+
+                      L4e       v             elkC
+
+                      L4e        v            elkC
+
+                      L4e         v           elkC
+
+                      L4e          v          elkC
+
+                      L4e           v         elkC
+
+                      L4e            v        elkC
+
+                      L4e             v       elkC
+
+                      L4e            v        elkC
+
+                      L4e           v         elkC
+
+                      L4e          v          elkC
+
+                       L4e         v         elkC
+
+                        L4e        v        elkC
+
+                         L4e       v       elkC
+
+                          L4e      v      elkC
+
+                           L4e     v     elkC
+
+                            L4e    v    elkC
+
+                             L4e   v   elkC
+
+                              L4e  v  elkC
+
+                               L4e v elkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                                L4evelkC
+
+                               L4evelkC
+
+                              L4evelkC
+
+                             L4evelkC
+
+                            L4evelkC
+
+                           L4evelkC
+
+                          L4evelkC
+
+                         L4evelkC
+
+                        L4evelkC
+
+                       L4evelkC
+
+                      L4evelkC
+
+                     L4evelkC
+
+                    L4evelkC
+
+                   L4evelkC
+
+                  L4evelkC
+
+                 L4evelkC
+
+                L4evelkC
+
+               L4evelkC
+
+              L4evelkC
+
+             L4evelkC
+
+            L4evelkC
+
+           L4evelkC
+
+          L4evelkC
+
+         L4evelkC
+
+        L4evelkC
+
+       L4evelkC
+
+      L4evelkC
+
+     L4evelkC
+
+    L4evelkC
+
+   L4evelkC
+
+  L4evelkC
+
+ L4evelkC
+
+L4evelkC
+
+ L4evelkC
+
+  L4evelkC
+
+   L4evelkC
+
+    L4evelkC
+
+     L4evelkC
+
+    L 4evelkC
+
+   L  4evelkC
+
+  L   4evelkC
+
+ L    4evelkC
+
+L     4evelkC
+
+L    4 evelkC
+
+L   4  evelkC
+
+L  4   evelkC
+
+L 4    evelkC
+
+L4     evelkC
+
+L4    e velkC
+
+L4   e  velkC
+
+L4  e   velkC
+
+L4 e    velkC
+
+L4e     velkC
+
+L4e    v elkC
+
+L4e   v  elkC
+
+L4e  v   elkC
+
+L4e v    elkC
+
+L4ev     elkC
+
+L4ev    e lkC
+
+L4ev   e  lkC
+
+L4ev  e   lkC
+
+L4ev e    lkC
+
+L4eve     lkC
+
+L4eve    l kC
+
+L4eve   l  kC
+
+L4eve  l   kC
+
+L4eve l    kC
+
+L4evel     kC
+
+L4evel    k C
+
+L4evel   k  C
+
+L4evel  k   C
+
+L4evel k    C
+
+L4evelk     C
+
+L4evelk    C 
+
+L4evelk   C  
+
+L4evelk  C   
+
+L4evelk C    
+
+L4evelkC     
+
+L4evelkC
+
+CL4evelk
+
+kCL4evel
+
+lkCL4eve
+
+elkCL4ev
+
+velkCL4e
+
+evelkCL4
+
+4evelkCL
+
+L4evelkC
+
+CL4evelk
+
+kCL4evel
+
+lkCL4eve
+
+elkCL4ev
+
+velkCL4e
+
+evelkCL4
+
+4evelkCL
+
+L4evelkC
+
+CL4evelk
+
+kCL4evel
+
+lkCL4eve
+
+elkCL4ev
+
+velkCL4e
+
+evelkCL4
+
+4evelkCL
+
+L4evelkC
+
+L4evelkC
+
+ L4evelkC
+
+  L4evelkC
+
+   L4evelkC
+
+    L4evelkC
+
+     L4evelkC
+
+      L4evelkC
+
+       L4evelkC
+
+        L4evelkC
+
+         L4evelkC
+
+          L4evelkC
+
+         L4ev  elkC
+
+        L4ev    elkC
+
+       L4ev      elkC
+
+      L4ev        elkC
+
+     L4ev          elkC
+
+    L4ev            elkC
+
+   L4ev              elkC
+
+  L4ev                elkC
+
+ L4ev                  elkC
+
+L4ev                    elkC
+
+ L4ev                  elkC
+
+  L4ev                elkC
+
+   L4ev              elkC
+
+    L4ev            elkC
+
+     L4ev          elkC
+
+      L4ev        elkC
+
+       L4ev      elkC
+
+        L4ev    elkC
+
+         L4ev  elkC
+
+          L4evelkC
+
+           L4eelkC
+
+            L4elkC
+
+             LelkC
+
+              elkC
+
+             elkCv
+
+            elkCev
+
+           elkC4ev
+
+          elkCL4ev
+
+         elkC  L4ev
+
+        elkC    L4ev
+
+       elkC      L4ev
+
+      elkC        L4ev
+
+     elkC          L4ev
+
+    elkC            L4ev
+
+   elkC              L4ev
+
+  elkC                L4ev
+
+ elkC                  L4ev
+
+elkC                    L4ev
+
+ elkC                  L4ev
+
+  elkC                L4ev
+
+   elkC              L4ev
+
+    elkC            L4ev
+
+     elkC          L4ev
+
+      elkC        L4ev
+
+       elkC      L4ev
+
+        elkC    L4ev
+
+         elkC  L4ev
+
+          elkCL4ev
+
+           elkL4ev
+
+            elL4ev
+
+             eL4ev
+
+              L4ev
+
+             L4evC
+
+            L4evkC
+
+           L4evlkC
+
+          L4evelkC
+
+         L4ev  elkC
+
+        L4ev    elkC
+
+       L4ev      elkC
+
+      L4ev        elkC
+
+     L4ev          elkC
+
+    L4ev            elkC
+
+   L4ev              elkC
+
+  L4ev                elkC
+
+ L4ev                  elkC
+
+L4ev                    elkC
+
+ L4ev                  elkC
+
+  L4ev                elkC
+
+   L4ev              elkC
+
+    L4ev            elkC
+
+     L4ev          elkC
+
+      L4ev        elkC
+
+       L4ev      elkC
+
+        L4ev    elkC
+
+         L4ev  elkC
+
+          L4evelkC
+
+           L4eelkC
+
+            L4elkC
+
+             LelkC
+
+              elkC
+
+             elkCv
+
+            elkCev
+
+           elkC4ev
+
+          elkCL4ev
+
+         elkC  L4ev
+
+        elkC    L4ev
+
+       elkC      L4ev
+
+      elkC        L4ev
+
+     elkC          L4ev
+
+    elkC            L4ev
+
+   elkC              L4ev
+
+  elkC                L4ev
+
+ elkC                  L4ev
+
+elkC                    L4ev
+
+ elkC                  L4ev
+
+  elkC                L4ev
+
+   elkC              L4ev
+
+    elkC            L4ev
+
+     elkC          L4ev
+
+      elkC        L4ev
+
+       elkC      L4ev
+
+        elkC    L4ev
+
+         elkC  L4ev
+
+          elkCL4ev
+
+           elkL4ev
+
+            elL4ev
+
+             eL4ev
+
+              L4ev
+
+             L4evC
+
+            L4evkC
+
+           L4evlkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+          L4evelkC
+
+         L4evelkC
+
+        L4evelkC
+
+       L4evelkC
+
+      L4evelkC
+
+     L4evelkC
+
+    L4evelkC
+
+   L4evelkC
+
+  L4evelkC
+
+ L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+L4evelkC
+
+
+
