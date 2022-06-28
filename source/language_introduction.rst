@@ -6,16 +6,16 @@
 
 Hi, 欢迎莅临我的世界
 
+|logo|
+
+.. |logo| image:: https://postimg.cc/NyzdJR8Y
+
 1.2 说明
 ---------------------
 
 这是我的私人博客，最近想起来拾掇了拾掇，如果有什么想说的话也许会在这里讲给你听。希望你喜欢。
 
 2022年6月16日按：终于修好了，我也不知道是什么问题，我也不知道是怎么修的，我只是把所有代码都重新复制了一遍...... 
-
-本博客由GitHub辅助完成 |logo|
-
-.. |logo| image:: https://help.github.com/assets/images/site/favicon.ico
 
 刘业昊 2022.02.19
 
