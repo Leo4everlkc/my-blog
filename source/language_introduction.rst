@@ -4,11 +4,12 @@
 1.1 欢迎
 ---------------------
 
-Hi, 欢迎莅临我的世界
+Hi, 欢迎莅临我们的世界
+2022.06.28 网站终于有logo啦
 
 |logo|
 
-.. |logo| image:: https://postimg.cc/NyzdJR8Y
+.. |logo| image:: https://i.postimg.cc/gJY10Dnw/1.jpg
 
 1.2 说明
 ---------------------
